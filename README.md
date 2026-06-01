@@ -8,7 +8,7 @@
 
 💬 Ask me about **HTML, CSS, JavaScript, Node.js, MySQL, and UI/UX Design**
 
-📫 How to reach me: **add your email or social link here**
+📫 How to reach me: panditrohini207@gmail.com
 
 😄 Pronouns: **She/Her**
 
